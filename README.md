@@ -19,7 +19,7 @@ My goal is to contribute my skills and creativity to the field of UI/UX design, 
 ## Connect with Me
 
 - 💼 LinkedIn:[Bhargavi Marathe](https://www.linkedin.com/in/bhargavi-marathe-b15285115)
-- 🌐 Portfolio: 
+- 🌐 Portfolio:https://bhargavi2626.wixsite.com/marathedesigns
 
 ## Let's Connect
 
